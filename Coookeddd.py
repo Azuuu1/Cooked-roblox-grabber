@@ -1,3 +1,1 @@
-so something broke i dont know and i cant put the code here 
-link for the code: https://pastebin.com/MphcEgjj
-password : COOKED
+theres a new bug and i dont have a solution to fix it so yh sr but cooked is right now closed 
