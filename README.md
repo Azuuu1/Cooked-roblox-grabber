@@ -1,2 +1,1 @@
-# Cooked-roblox-grabber
-roblox cookie logger if u want a version that puts it self into the startup makes ur mouse go everywhere and spams images over the screen dm me on discord if u need any help: AzuuHold#5949
+aSAbeYS0muq95JHXgBVBuMDCqv6VzepSaSAbeYS0muq95JHXgBVBuMDCqv6VzepSjpvI2gtUgwMRuUnKkwUaD4g9KfUaYbPbNuaIM7CpFGgayY6P9vp3HfWjkgWaP35m
